@@ -9,7 +9,7 @@
  
 
 ### Espero puedas encontrar aporte devalor para ti !!!!
-### Por favor si algo de lo que encontraste fue de ayuda dejanos tu estrellita!!!!
+### Por favor si algo de lo que encontraste fue de ayuda dejanos tu estrellita ⭐⭐⭐⭐!!!!
 
 **visitanos en** www.deptechnology.tech
 
