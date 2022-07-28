@@ -8,7 +8,7 @@
  - Capacitaciones
  
 
-### Espero puedas encontrar aporte devalor para ti !!!!
+### Espero puedas encontrar aporte de valor para ti 😎😎😎 !!!!
 ### Por favor si algo de lo que encontraste fue de ayuda dejanos tu estrellita ⭐⭐⭐⭐!!!!
 
 **visitanos en** www.deptechnology.tech
