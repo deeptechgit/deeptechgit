@@ -17,3 +17,7 @@
 deeptechgit/deeptechgit is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
 --->
+https://youtu.be/ADS8vPZV-i8
+
+[![Alt text](https://img.youtube.com/vi/configuroweb/0.jpg)](https://www.youtube.com/watch?v=ADS8vPZV-i8)
+
